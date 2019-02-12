@@ -1,2 +1,2 @@
-# GOP-Server Well my friend Ames, our time has come. I am not sure if you will be able to see this but, take the treasury set up a shadow government. Crush this Coup before it is too late, remember that this guy was gonna defect to the Libs and probably a Lib Plant. We can not let our empire die.
+@everyone The Game has reset, start whipping people into states use the sheets, and Dobs will be chairman till I return later this afternoon. Make sure to contact Tiber to be let in. God Bless, Sorry i can not be there as I am still in class. God damnit tiber why do this midday
 lol melp's webhook
